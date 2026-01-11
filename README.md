@@ -64,6 +64,6 @@ VNR Vignana Jyothi Institute of Engineering & Technology
 
 ## Contact
 📍 Hyderabad, India  
-✉️ tejasreemannala@gmail.com  
+✉️ mannalatejasreekrishna@gmail.com  
 🔗 GitHub: https://github.com/tejasreemannala
 
